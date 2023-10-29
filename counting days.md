@@ -1,3 +1,24 @@
+
+10/16/2023
+
+Elinda birthday of 23, mine 54 Kai 20
+
+sters seminary的事情，也是许多的鼓励；今天是Kai打电话问我对学业和将来的安排，忽然心中响起了这首歌及以前的诸多感动，在他的这个年龄，我经历了人生的大转折关头，远离了谎言。把这首歌发给了他，也发给大家。我们一起祷告寻求主的带领。[Worship]“「所以，凡听见我这话就去行的，好比一个聪明人，把房子盖在磐石上； 雨淋，水冲，风吹，撞着那房子，房子总不倒塌，因为根基立在磐石上。 凡听见我这话不去行的，好比一个无知的人，把房子盖在沙土上； 雨淋，水冲，风吹，撞着那房子，房子就倒塌了，并且倒塌得很大。」 耶稣讲完了这些话，众人都希奇他的教训； 因为他教训他们，正像有权柄的人，不像他们的文士。”
+‭‭马太福音‬ ‭7‬:‭24‬-‭29‬ ‭CUNPSS-神‬‬
+https://bible.com/bible/48/mat.7.24-29.CUNPSS-神
+
+10/12/2023
+ready for the new office. and today is 55 according to Chinese system.
+no matter what tightly grasp Jesus. maybe there is rainy days in front of me. 30 years or 40 years in God's grace
+
+1. master's seminary
+2. software/GC
+
+The advisor stopped by:
+Elinda called, 
+the prayer's meeting and seminar
+
+
 1/08/2023
 Campbell Morgan bible.
 
