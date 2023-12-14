@@ -12,11 +12,11 @@ regrets:
 # 3. knowing what I truly want and never give up! 
 # 4. stay away bad guys, pray to God's will Peter's 2 involvments. 
 # 5. cherish every single chances choose the right of way
-# 6. align, procerpt cherish #1 core and repeating winning experience. competition is loser's game
+# 6. align, procerpt cherish #1 core and repeating winning experience with leverage. competition is loser's game
 # 7. startup
 
 Forget and press forward:
-# 8. Stay in God's grace   
+# 8. Stay in God's grace   (truth will set me free, in Grace)
 # 9. LOVE  
 # 10. Hold God tightly! always Joyful, never ceasing praying, always be thankful!
 # 11. family and marriage
