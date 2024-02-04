@@ -1,4 +1,45 @@
 
+2/04/2024
+祷告信心与顺服。
+1/28/2024
+Psalm 119: 11  我将你的话语
+诗篇119:11 和合本
+11 我将你的话藏在心里，
+免得我得罪你。
+
+马太福音4:1-11 和合本
+1 当时，耶稣被圣灵引到旷野，受魔鬼的试探。 
+2 他禁食四十昼夜，后来就饿了。 
+3 那试探人的进前来，对他说：“你若是　神的儿子，可以吩咐这些石头变成食物。” 
+4 耶稣却回答说：“经上记着说：‘人活着，不是单靠食物，乃是靠　神口里所出的一切话。’”
+5 魔鬼就带他进了圣城，叫他站在殿顶（“顶”原文作“翅”）上， 
+6 对他说：“你若是　神的儿子，可以跳下去，因为经上记着说：‘主要为你吩咐他的使者用手托着你，免得你的脚碰在石头上。’”
+7 耶稣对他说：“经上又记着说：‘不可试探主你的　神。’” 
+8 魔鬼又带他上了一座最高的山，将世上的万国与万国的荣华都指给他看， 
+9 对他说：“你若俯伏拜我，我就把这一切都赐给你。” 
+10 耶稣说：“撒但（“撒但”就是“抵挡”的意思，乃魔鬼的别名），退去吧！因为经上记着说：‘当拜主你的　神，单要侍奉他。’”
+11 于是，魔鬼离了耶稣，有天使来伺候他。
+
+试探和偶像，何为试探： 不顺服；谄媚。荣耀神，犯罪远离神。 耶稣是如何得胜试探。
+祭司三十岁开始服侍，
+G3985试探
+1. 肉体的需要（生命的本质）
+2. faith    (身份和权柄 . Roman 8: 1)  being;
+a. Son (John 1: 12, Roman 5:1) 
+b. disciple， Eph1:1, Cor1:2) Roman 8:1
+c. new born； cor2 5: 17Cor1: 2:12
+d. son of light, (The 1: 5:2)(Eph 2:5) resu
+e. heaven , 
+f. Eph 4:24
+3. workship (God is the best, only God Psalm 16), James1: (14-15), Phi ( self denial, give up self. )
+John Owen enter into temptation, vs. lead to temptation 
+
+4. in the truth ( truth wil set us free)   fake: lust, eye and pride (I need know Jesus, read and understand Jesus)
+5. abide the truth (Jesus knows me)
+
+######
+
+
 12/31/2023
 # 2
 爬梯子ladder。 in Christ 高升
@@ -29,7 +70,7 @@ https://bible.com/bible/48/php.2.5-11.CUNPSS-神
 
 1/14/2024
 以弗所6， 属灵争战--》 全副军装
-
+祷告
 
 1/10/2024
 meet Prof Shang, Yang's kitchen. first day of Guo

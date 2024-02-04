@@ -2,9 +2,9 @@
 
 ### 12/8/2023
 40 years as Moses in God's hand. only 1 goal. Psalm 4 and 5.  abid and preach God's words
-3 --- 7 --- 9 --- 11 - 12 - 1 ---- 5 - 6 --- 9
-   4     2     2     1    1     4    1    3 
-   B     O     S     S    B     P    E    R
+3 ----- 8 -- 10 -- 12 - 1 ---- 4 ----- 9
+   5       2     2     1    3     5     
+   B       O     S     B    S     R
 
 regrets:
 # 1. Morey slow to big decision, wait and patient like a sniper. Embarcadero the same
