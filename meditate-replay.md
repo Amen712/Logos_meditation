@@ -27,7 +27,7 @@ Forget and press forward:
 
 
 
-### General feedback
+### General feedback regaring our current website:
 
 1. boring
 2. download speed slow
@@ -40,22 +40,22 @@ Forget and press forward:
 
 ### requirements
 
-1. not boring
+1. not boring to our targeted audience (polish our chruch presentation)
 2. website getting more attraction during and after covid
 3. lean process, not too fancy
-
+4. it is a mission now to serve God over internet
 
 ### recommendation
 
-1. ui/ux driven - figma powered
+1. ui/ux driven - figma to be the platform to communicate with Church elders and leaders acting as blueprint;
 2. devops CI/CD support
-3. membership
+3. membership to decouple role from individuals
 4. analytics - google analytics
-
+5. operations is important for contents
 
 ### skillset
 
-1. ui/ux design - jim xiao (0.5), nie jingyao, zhao ting
+1. ui/ux design - jim xiao (0.5), nie jingyao, zhao ting, 
 2. implementation
 3. contents (PGC / UGC)
 4. experience manager
@@ -66,8 +66,9 @@ Forget and press forward:
 
 ### strategy
 
-1. short-term solution: improve the existing wordpress
-2. long-term solution: ui/ux figma project
+1. Figma design go first; wordpress or long term both will based on UI/UX (Figma /element for wordpress)
+2. short-term solution: improve the existing wordpress
+3. long-term solution: ui/ux figma project
 
 
 ### short term solution action item
@@ -95,11 +96,11 @@ Forget and press forward:
 
 ### long term team:
 
-1. infrastructure lead: jim xiao
+1. solution lead: jim xiao
 2. content lead: jacky
 3. ui/ux lead: jin xiao and jingyao nie
 4. data lead: yufeng
-5. account manager: todd zhang
+5. account manager/PM: todd zhang
 
 
 1017 Westlynn Way
