@@ -1,8 +1,23 @@
+# 4/21/2024
+great commandandment 
+love God with whole heart, mind , sul and strength 
+Love your neighbor
+forgive Philemon , main prayer ()
+problems if no forgiveness: 
+imprison (no healing), set to free; 
+bitterness (Joseph)
 # 4/14/2024  生命的意义 10次 （基督的态度）
 Viktor1905， 集中营，Mens search for meaning。 选择的态度
 腓立比书1:20 和合本
 20 照着我所切慕、所盼望的，没有一事叫我羞愧。只要凡事放胆，无论是生是死，总叫基督在我身上照常显大。我活着就是基督，死了就有益处：
-保罗上诉到罗马， 福音传给了罗马的该撒家的
+保罗上诉到罗马， 福音传给了罗马的该撒家的。
+1. 得救： （Job13:15-16）救恩；忠于神的托付是更重要的事情； 神给我的使命， 不要走很多的。当跑的🏃的路跑了吗？
+2. 凡事放胆；活着是基督，死了益处，（profit）与主同在；win win
+3. 保罗生平： 林1: 11， 成了一台戏； 来：成了戏景； 榜样： 罗马书12 和14， 
+BSF
+4. 又长进又喜乐。 
+3件事情（know God more， love God more ， follow God）
+
 
 
 # 4/7/2024
