@@ -1,3 +1,35 @@
+# sept 22. 2024
+1. delegation； business 模式： 看我自己在白板上所画的。 特别是软件方面。 
+2. Allen 来LUSSO安排见面。 
+3. 带预查
+4. 习惯。 干净的重复
+
+
+# 1 . Wed 9/11/2024
+retainning wall to call val, jeff
+foster city payment
+lakeview accounting, plan, material and design
+morey permit
+pike, stanford, hawaii and LAH with sophia
+lake tahoe and SVDEN LP plan including lynbrook and the new investment
+Mark
+tax
+store and material for 144 Lisa
+insurance, medical, dental, eyes
+store and showroom
+
+#
+
+
+
+Monday 4/29/2024
+1. 新约
+2. 新技术 （AI， LGS）
+3. business （专注）
+
+Morey
+
+
 1/10/2024
 
 
