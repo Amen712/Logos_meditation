@@ -1,3 +1,10 @@
+
+# 9/23/2024
+today fernando submitted the lot depth got aceepted by Conner, others are pending but it is took 3 long months
+to start a business, the most 2 important parts: 1. CFO $ 2. best people you could afford
+
+
+
 # sept 22. 2024
 1. delegation； business 模式： 看我自己在白板上所画的。 特别是软件方面。 
 2. Allen 来LUSSO安排见面。 
