@@ -1,3 +1,399 @@
+# 罗马书6 10/13/2024
+读罗马书 罪很严重。 得罪神， 神的震怒。 重点在传神的福音： 罪三章二十节。 求神的灵光照， 罪行： 罪性。 
+‪罗马书‬1:16 和合本
+16 我不以福音为耻；这福音本是　神的大能，要救一切相信的，先是犹太人，后是希腊人。
+4:24  ‪罗马书‬5:10 和合本
+10 因为我们作仇敌的时候，且藉着　神儿子的死，得与　神和好；既已和好，就更要因他的生得救了。
+
+罗马书 2:1-16公正的审判
+
+Certainly! The Epistle to the Romans is one of the most significant letters in the New Testament, authored by the Apostle Paul around A.D. 57. Written to the Christian community in Rome, it systematically presents key doctrines of Christian theology, addressing themes like sin, salvation, grace, faith, righteousness, and the role of both Jews and Gentiles in God’s plan. Below is a structured outline of the Book of Romans:
+
+I. Introduction (Romans 1:1-17)
+
+	•	Greeting and Apostolic Calling (1:1-7)
+	•	Paul introduces himself as a servant of Christ Jesus, called to be an apostle.
+	•	Emphasizes the Gospel promised through the prophets in the Holy Scriptures.
+	•	Paul’s Desire to Visit Rome (1:8-15)
+	•	Expresses gratitude for the Roman believers.
+	•	Shares his longing to visit them to impart spiritual gifts and encourage mutual faith.
+	•	Theme Statement: The Righteousness of God Revealed (1:16-17)
+	•	Declares the Gospel as the power of God for salvation to everyone who believes.
+	•	Introduces the concept of righteousness by faith.
+
+II. The Universal Need for God’s Righteousness (Romans 1:18-3:20)
+
+	•	God’s Wrath Against Sinful Humanity (1:18-32)
+	•	Describes humanity’s suppression of truth and idolatry.
+	•	Details the moral degradation resulting from rejecting God.
+	•	God’s Righteous Judgment (2:1-16)
+	•	Warns against judging others while practicing the same sins.
+	•	Affirms that God shows no partiality in His judgment.
+	•	The Jews and the Law (2:17-3:8)
+	•	Challenges the Jews who rely on the Law but fail to keep it.
+	•	Discusses true circumcision as a matter of the heart.
+	•	All Have Sinned (3:9-20)
+	•	Concludes that both Jews and Gentiles are under sin.
+	•	States that no one will be declared righteous by observing the Law alone.
+
+III. Justification by Faith (Romans 3:21-5:21)
+
+	•	Righteousness Through Faith (3:21-31)
+	•	Introduces justification apart from the Law, through faith in Jesus Christ.
+	•	Emphasizes that all have sinned but are justified freely by God’s grace.
+	•	Example of Abraham (4:1-25)
+	•	Illustrates justification by faith using Abraham’s belief credited as righteousness.
+	•	Highlights that this promise extends to all who believe.
+	•	Benefits of Justification (5:1-11)
+	•	Discusses peace with God through faith.
+	•	Rejoices in sufferings producing perseverance, character, and hope.
+	•	Contrast of Adam and Christ (5:12-21)
+	•	Compares the trespass of Adam leading to death with the gift of grace through Christ leading to life.
+
+IV. Sanctification: Living Out Righteousness (Romans 6:1-8:39)
+
+	•	Dead to Sin, Alive in Christ (6:1-14)
+	•	Encourages believers to consider themselves dead to sin but alive to God.
+	•	Slaves to Righteousness (6:15-23)
+	•	Contrasts slavery to sin with slavery to righteousness leading to holiness.
+	•	Believers and the Law (7:1-25)
+	•	Explains release from the Law through Christ’s body.
+	•	Describes the internal struggle with sin.
+	•	Life Through the Spirit (8:1-17)
+	•	Affirms no condemnation for those in Christ Jesus.
+	•	Introduces the role of the Holy Spirit in empowering believers.
+	•	Future Glory and God’s Love (8:18-39)
+	•	Offers hope in future glory outweighing present sufferings.
+	•	Assures that nothing can separate us from the love of God in Christ.
+
+V. God’s Sovereignty and Israel’s Unbelief (Romans 9:1-11:36)
+
+	•	Paul’s Sorrow for Israel (9:1-5)
+	•	Expresses deep sorrow for his fellow Israelites who have rejected Christ.
+	•	God’s Sovereign Choice (9:6-29)
+	•	Discusses God’s election and mercy.
+	•	Israel’s Unbelief and Gentile Inclusion (9:30-10:21)
+	•	Highlights Israel’s pursuit of righteousness through the Law instead of faith.
+	•	Emphasizes the universal offer of salvation.
+	•	The Remnant of Israel and Salvation of the Gentiles (11:1-24)
+	•	Explains that a remnant of Israel remains faithful.
+	•	Uses the olive tree metaphor for Gentile inclusion.
+	•	All Israel Will Be Saved (11:25-36)
+	•	Prophesies the eventual salvation of Israel.
+	•	Praises God’s wisdom and knowledge.
+
+VI. Practical Exhortations for Christian Living (Romans 12:1-15:13)
+
+	•	Living Sacrifices and Humble Service (12:1-8)
+	•	Urges offering bodies as living sacrifices.
+	•	Encourages using spiritual gifts for the common good.
+	•	Love in Action (12:9-21)
+	•	Commands sincere love, hospitality, and overcoming evil with good.
+	•	Submission to Authorities (13:1-7)
+	•	Advises submission to governing authorities as instituted by God.
+	•	Fulfillment of the Law Through Love (13:8-14)
+	•	Summarizes the commandments in loving one’s neighbor.
+	•	Calls for holy living in light of salvation’s nearness.
+	•	Accepting the Weak in Faith (14:1-15:13)
+	•	Teaches tolerance on disputable matters.
+	•	Emphasizes building up one another and living in harmony.
+
+VII. Conclusion and Greetings (Romans 15:14-16:27)
+
+	•	Paul’s Ministry and Travel Plans (15:14-33)
+	•	Shares his mission to the Gentiles.
+	•	Requests prayers for his journey to Jerusalem and eventual visit to Rome.
+	•	Commendations and Personal Greetings (16:1-16)
+	•	Commends Phoebe and greets numerous individuals in Rome.
+	•	Warning Against Divisive People (16:17-20)
+	•	Advises caution against those causing divisions.
+	•	Final Greetings from Paul’s Companions (16:21-24)
+	•	Includes greetings from Timothy and others.
+	•	Doxology (16:25-27)
+	•	Ends with a praise to God who is able to establish believers according to the Gospel.
+
+Summary of Key Themes:
+
+	•	Righteousness by Faith: Central to Romans is the doctrine that righteousness comes through faith in Jesus Christ, not by works of the Law.
+	•	Universal Sinfulness: Paul asserts that all humanity, both Jews and Gentiles, are under sin and in need of salvation.
+	•	Justification and Sanctification: Explores how believers are justified (declared righteous) and called to live sanctified (holy) lives through the power of the Holy Spirit.
+	•	God’s Sovereignty and Mercy: Discusses God’s sovereign choice in election and His mercy extended to all who believe.
+	•	Unity in the Body of Christ: Emphasizes the importance of unity, love, and acceptance among believers despite differences.
+
+The Book of Romans serves as a profound theological treatise that has influenced Christian thought and doctrine throughout history. Its structured argumentation provides deep insights into the Christian faith, encouraging believers to understand the implications of the Gospel and to live out their faith in practical ways
+
+Certainly! The Book of Romans is a foundational text of Christian theology, written by the Apostle Paul around A.D. 57. It is renowned for its profound theological insights and systematic presentation of the Gospel. Paul’s primary aim in this epistle is to explain the righteousness that comes from God, the universality of sin, and the transformative power of faith in Jesus Christ.
+
+Key Points of the Book of Romans
+
+	1.	Justification by Faith Alone
+	•	Essence: Righteousness before God is achieved through faith in Jesus Christ, not by works or adherence to the Law.
+	•	Development: Paul emphasizes that both Jews and Gentiles are justified by faith, illustrating that salvation is a gift of grace accessible to all who believe.
+	2.	Universal Sinfulness of Humanity
+	•	Essence: All humans have sinned and fall short of God’s glory, necessitating divine intervention for redemption.
+	•	Development: He argues that neither natural revelation nor the Law can save; instead, they reveal humanity’s inability to attain righteousness on their own.
+	3.	Role of the Law
+	•	Essence: The Law exposes sin but cannot save from it.
+	•	Development: Paul explains that while the Law is holy and reveals God’s standards, it serves to highlight human sinfulness and the need for a savior.
+	4.	God’s Sovereignty and Mercy
+	•	Essence: God’s sovereign choice in dispensing mercy demonstrates His righteousness and divine prerogative.
+	•	Development: He addresses questions about God’s justice, illustrating that God’s ways transcend human understanding and are rooted in His sovereign will.
+	5.	Life in the Spirit and Sanctification
+	•	Essence: Believers are called to live a new life empowered by the Holy Spirit, leading to sanctification.
+	•	Development: Paul contrasts life in the flesh with life in the Spirit, encouraging believers to live according to the Spirit’s guidance.
+	6.	Unity of Jews and Gentiles
+	•	Essence: God’s plan of salvation encompasses both Jews and Gentiles, breaking down barriers and uniting all in Christ.
+	•	Development: He explains that while Israel’s unbelief has led to the inclusion of Gentiles, God’s promises to Israel remain, and there is hope for their future redemption.
+	7.	Practical Christian Living
+	•	Essence: Faith must be demonstrated through ethical conduct, love, and service within the Christian community and society at large.
+	•	Development: Paul provides practical instructions on relationships, submission to authorities, and how to handle disputable matters among believers.
+
+Organization and Development
+
+The Book of Romans is carefully structured to build upon each theological concept, leading the reader through a logical progression of thought.
+
+I. Introduction (Romans 1:1-17)
+
+	•	Purpose: Establishes Paul’s apostolic authority and introduces the main theme—righteousness from God through faith.
+	•	Development:
+	•	Greeting: Paul identifies himself and expresses his mission.
+	•	Desire to Visit: Shares his intention to visit the Roman believers.
+	•	Theme Statement: Declares the Gospel as the power of God for salvation to everyone who believes.
+
+II. The Universal Problem of Sin (Romans 1:18-3:20)
+
+	•	Purpose: Demonstrates that all humanity is guilty before God.
+	•	Development:
+	•	Gentiles Under Sin: Details how Gentiles have suppressed the truth and engaged in idolatry.
+	•	Jews Under Sin: Addresses Jews who rely on the Law but fail to keep it.
+	•	Conclusion: Affirms that no one is righteous and that the Law cannot justify.
+
+III. Justification by Faith Explained (Romans 3:21-5:21)
+
+	•	Purpose: Introduces the doctrine of justification by faith apart from the Law.
+	•	Development:
+	•	Righteousness Through Faith: Explains that righteousness is given through faith in Jesus Christ.
+	•	Example of Abraham: Uses Abraham to illustrate justification by faith.
+	•	Results of Justification: Discusses peace with God and reconciliation.
+
+IV. Sanctification and Life in the Spirit (Romans 6:1-8:39)
+
+	•	Purpose: Explores the believer’s new life and victory over sin.
+	•	Development:
+	•	Dead to Sin: Encourages believers to consider themselves dead to sin.
+	•	Struggle with Sin: Acknowledges ongoing struggles but points to deliverance through Christ.
+	•	Life in the Spirit: Emphasizes the role of the Holy Spirit in empowering believers.
+	•	Assurance of Salvation: Affirms that nothing can separate believers from God’s love.
+
+V. God’s Sovereignty and Israel’s Role (Romans 9:1-11:36)
+
+	•	Purpose: Addresses the question of Israel’s unbelief and God’s faithfulness.
+	•	Development:
+	•	God’s Sovereign Choice: Discusses God’s right to choose and show mercy.
+	•	Israel’s Unbelief: Explores reasons for Israel’s rejection of the Gospel.
+	•	Hope for Israel: Expresses hope for Israel’s future acceptance.
+
+VI. Practical Exhortations (Romans 12:1-15:13)
+
+	•	Purpose: Provides guidance on living out the faith in practical ways.
+	•	Development:
+	•	Living Sacrifices: Calls for self-offering in service to God.
+	•	Love and Humility: Encourages genuine love and humility in relationships.
+	•	Submission to Authorities: Advises respecting governing authorities.
+	•	Dealing with Differences: Addresses how to handle disagreements over non-essential matters.
+
+VII. Conclusion and Greetings (Romans 15:14-16:27)
+
+	•	Purpose: Concludes the letter with personal remarks and blessings.
+	•	Development:
+	•	Paul’s Ministry: Shares his missionary plans and requests prayer.
+	•	Personal Greetings: Sends greetings to various individuals.
+	•	Final Instructions and Doxology: Offers final exhortations and praises God.
+
+How the Key Points are Organized and Developed
+
+	1.	Logical Progression of Thought
+	•	Paul begins by establishing the problem of sin affecting all humanity, creating a need for salvation.
+	•	He then introduces the solution—justification by faith—explaining how it is accessible to all.
+	•	After addressing the theological aspects, he moves to practical applications, guiding believers on how to live out their faith.
+	2.	Use of Diatribe Style
+	•	Employs rhetorical questions and imaginary interlocutors to anticipate objections and clarify points.
+	•	This method engages readers and helps in systematically dismantling counterarguments.
+	3.	Scriptural References
+	•	Frequently cites Hebrew Scriptures to validate his arguments and show continuity with God’s historical dealings.
+	•	Examples include references to Abraham, David, and prophetic writings.
+	4.	Illustrations and Analogies
+	•	Utilizes everyday concepts such as slavery, marriage, and body parts to explain complex theological ideas.
+	•	The analogy of the olive tree illustrates the inclusion of Gentiles and the status of Israel.
+	5.	Emphasis on God’s Character
+	•	Throughout the letter, Paul underscores God’s righteousness, faithfulness, and mercy.
+	•	He highlights that God’s actions are consistent with His nature and purposes.
+	6.	Transition from Doctrine to Practice
+	•	After establishing doctrinal truths, Paul transitions to ethical instructions.
+	•	This shift underscores that theology should inform and transform conduct.
+	7.	Inclusivity of the Gospel
+	•	Paul reiterates that salvation is for both Jews and Gentiles.
+	•	He breaks down ethnic and cultural barriers, promoting unity within the church.
+
+Summary
+
+The Book of Romans meticulously builds a theological framework that:
+
+	•	Defines the Problem: Humanity’s universal sinfulness and inability to attain righteousness on its own.
+	•	Presents the Solution: Justification by faith in Jesus Christ as the only means of being made right with God.
+	•	Explains the Process: The role of the Law, the work of Christ, and the empowerment of the Holy Spirit.
+	•	Applies to Life: Offers practical guidance on how believers should live in response to these truths.
+	•	Addresses Key Questions: Tackles issues regarding God’s justice, the fate of Israel, and the integration of Gentiles.
+	•	Encourages Unity and Love: Emphasizes that doctrinal understanding should lead to harmonious relationships within the church.
+
+Paul’s systematic approach ensures that the reader not only understands the core doctrines of the Christian faith but also grasps their implications for daily living. By intertwining deep theological insights with practical exhortations, the Book of Romans serves as a comprehensive guide for believers seeking to live out their faith authentically.
+
+当然！**《罗马书》**是基督教神学的基础文本之一，由使徒保罗于公元57年左右写成。它以其深刻的神学洞察和系统的福音阐述而闻名。保罗在这封书信中的主要目的是解释来自神的义、人类普遍的罪性，以及在耶稣基督里的信心所带来的改变力量。
+
+《罗马书》的关键要点
+
+	1.	因信称义
+	•	本质：在神面前的义是通过对耶稣基督的信心获得的，而不是通过行为或遵守律法。
+	•	展开：保罗强调，犹太人和外邦人都是因信称义的，说明救恩是神的恩典礼物，凡信的人都可以得到。
+	2.	人类的普遍罪性
+	•	本质：所有人都犯了罪，亏缺了神的荣耀，需要神的介入来得救。
+	•	展开：他论述了自然启示和律法都不能拯救人，相反，它们揭示了人类无法凭自己达到义的标准。
+	3.	律法的作用
+	•	本质：律法揭示罪，但不能使人脱离罪。
+	•	展开：保罗解释，尽管律法是圣洁的，显示了神的标准，但它的作用是突出人类的罪性和对救主的需要。
+	4.	神的主权和怜悯
+	•	本质：神在施怜悯上的主权选择彰显了祂的公义和神圣特权。
+	•	展开：他回答了关于神公义的问题，说明神的道路超越了人的理解，根植于祂的主权旨意。
+	5.	在圣灵里的生命和成圣
+	•	本质：信徒被呼召过一种由圣灵赋予力量的新生活，走向成圣。
+	•	展开：保罗对比了属肉体的生活和属灵的生活，鼓励信徒按照圣灵的引导生活。
+	6.	犹太人和外邦人的合一
+	•	本质：神的救恩计划涵盖了犹太人和外邦人，在基督里打破了障碍，统一了所有人。
+	•	展开：他解释，尽管以色列的不信导致了外邦人的加入，但神对以色列的应许仍然存在，他们的未来得救有希望。
+	7.	实际的基督徒生活
+	•	本质：信心必须通过道德行为、爱心和在基督徒群体和社会中的服事来体现。
+	•	展开：保罗提供了关于人际关系、顺服权柄以及如何处理信徒之间可争议事项的实际指导。
+
+组织和展开方式
+
+《罗马书》精心结构，建立在每个神学概念之上，引导读者通过逻辑推理。
+
+一、引言（罗马书1:1-17）
+
+	•	目的：确立保罗的使徒权威，介绍主要主题——来自神的义通过信心获得。
+	•	展开：
+	•	问候：保罗自我介绍并表达他的使命。
+	•	渴望探访：分享他想探访罗马信徒的意愿。
+	•	主题陈述：宣告福音是神的大能，要救一切相信的人。
+
+二、罪的普遍问题（罗马书1:18-3:20）
+
+	•	目的：证明全人类在神面前有罪。
+	•	展开：
+	•	外邦人的罪：详细描述外邦人压制真理和崇拜偶像。
+	•	犹太人的罪：针对依靠律法但未能遵守的犹太人。
+	•	结论：确认没有义人，律法不能使人称义。
+
+三、因信称义的解释（罗马书3:21-5:21）
+
+	•	目的：介绍不靠律法、因信称义的教义。
+	•	展开：
+	•	通过信心得义：解释义是通过信耶稣基督而赐予的。
+	•	亚伯拉罕的例子：用亚伯拉罕说明因信称义。
+	•	称义的结果：讨论与神和好、享有平安。
+
+四、成圣与圣灵里的生命（罗马书6:1-8:39）
+
+	•	目的：探索信徒的新生命和对罪的胜利。
+	•	展开：
+	•	向罪死：鼓励信徒看自己向罪死了。
+	•	与罪的挣扎：承认持续的挣扎，但指出通过基督的拯救。
+	•	圣灵里的生命：强调圣灵在赋予信徒力量中的作用。
+	•	救恩的确据：确认没有什么能使信徒与神的爱隔绝。
+
+五、神的主权和以色列的角色（罗马书9:1-11:36）
+
+	•	目的：解决以色列的不信和神的信实问题。
+	•	展开：
+	•	神的主权选择：讨论神选择和施怜悯的权利。
+	•	以色列的不信：探讨以色列拒绝福音的原因。
+	•	对以色列的希望：表达对以色列未来接受的希望。
+
+六、实际的劝勉（罗马书12:1-15:13）
+
+	•	目的：提供如何在实际生活中践行信仰的指导。
+	•	展开：
+	•	活祭：呼吁将身体献上当作活祭，事奉神。
+	•	爱和谦卑：鼓励在关系中真诚的爱和谦卑。
+	•	顺服权柄：建议尊重执政掌权者。
+	•	处理分歧：讨论如何处理非本质问题上的分歧。
+
+七、结论和问候（罗马书15:14-16:27）
+
+	•	目的：以个人的话语和祝福结束书信。
+	•	展开：
+	•	保罗的事工：分享他的宣教计划并请求祷告。
+	•	个人问候：向各位个人致意。
+	•	最后的指示和颂赞：提供最后的劝勉并赞美神。
+
+关键要点的组织和发展方式
+
+	1.	逻辑的思维进程
+	•	保罗首先确立了罪影响全人类的问题，强调了救恩的必要性。
+	•	接着，他介绍了解决方案——因信称义，解释其对所有人的可及性。
+	•	在讨论神学概念后，他转向实际应用，指导信徒如何践行信仰。
+	2.	使用辩论风格
+	•	采用修辞性问题和假想的对话者，预见反对意见并澄清观点。
+	•	这种方法吸引读者，帮助系统地驳斥反对论点。
+	3.	引用圣经经文
+	•	经常引用希伯来圣经来验证他的论点，展示与神历史作为的连续性。
+	•	例如，引用亚伯拉罕、大卫和先知的著作。
+	4.	使用比喻和类比
+	•	利用日常概念，如奴隶、婚姻和身体部位，来解释复杂的神学思想。
+	•	橄榄树的比喻说明了外邦人的加入和以色列的地位。
+	5.	强调神的品格
+	•	在整封书信中，保罗强调神的公义、信实和怜悯。
+	•	他强调神的行为与祂的本性和旨意一致。
+	6.	从教义到实践的过渡
+	•	在建立教义真理后，保罗过渡到伦理指导。
+	•	这种转变强调神学应该指导并改变行为。
+	7.	福音的包容性
+	•	保罗反复强调救恩是为犹太人和外邦人预备的。
+	•	他打破了种族和文化的障碍，促进教会内的合一。
+
+总结
+
+**《罗马书》**精心构建了一个神学框架：
+
+	•	定义问题：人类普遍的罪性，无法凭自己达到神的义。
+	•	提出解决方案：通过对耶稣基督的信心称义，作为与神和好的唯一途径。
+	•	解释过程：律法的作用、基督的工作和圣灵的能力。
+	•	应用于生活：提供实际的指导，教导信徒如何回应这些真理。
+	•	解答关键问题：处理关于神的公义、以色列的命运和外邦人融入的问题。
+	•	鼓励合一和爱：强调教义理解应导致教会内的和谐关系。
+
+保罗的系统方法确保读者不仅理解基督教信仰的核心教义，还领会这些教义对日常生活的影响。通过将深刻的神学洞察与实际的劝勉相结合，《罗马书》为寻求真实地活出信仰的信徒提供了全面的指南。
+
+总而言之，**《罗马书》**巧妙地组织，引导读者从认识人类罪恶的深渊到拥抱神恩典的高峰。保罗对关键要点的展开，旨在教育、警醒并激励信徒过配得上福音的生活，扎根于信心，充满爱心。
+
+# 9/29/2024
+起跑线 ， 葡萄园的比喻 马太20  三批工人， 发工资都一样。 园主， 建构张力， 违反常理，凸显重点。 颠覆人的观念。
+1.埋怨； 2. 比较； 3. 眼红
+嫉妒， 数算神的恩典在自己身上的；诗篇16篇。 
+园主： 公平，对后面的慷慨，有恩典； 有主权处理自己的东西
+侍奉的态度：三批
+领奖牌的心态： 金牌银牌铜牌。 银牌心态。 知道最重要的是什么。 soul 
+ attitude --》 altitude
+ 那在后的，将要在前；在前的，将要在后了；
+ 总义， 少年人的官， 彼得问得什么？ 必要得百倍并且承受永生； 然而。 那在后的，将要在前；在前的，将要在后了。
+ 不过不一定。 
+ 提醒彼得天国的次序 （因为）： 天国不是论资排辈；必须矫正正确的心态： 仰赖神的恩典，顺服祂主权的安排；并校正侍奉的动机；
+主权恩典的应用 application： 
+1. Grace for every body （本来是不配得， 恩典与怜悯，）凡事谢恩， 没有什么是配得的
+2. 顺服神主权的安排（神给的都是最好的）；不埋怨；约瑟哭7次。约瑟（神的意思是好的）
+3. 校正侍奉的心态（圣灵向我们说话）
+起跑线与终点线哪个更重要。 掌握终点线， 心态
+
 # 9/22/2024
 
 11860 54  Tim order aria builder 

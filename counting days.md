@@ -1,3 +1,25 @@
+# 10/12/2024
+55th. thanks God for saving me from falling into pit and also thank you God for saving my life. 
+God bless me with a wife and a son, daughter's relationship is getting better
+Business will be more focused on sales, CFO and high tech and AI
+the good thing is AI is able to regenerate the whole code base including methoodoly and nextjs. swiftUI and flutter
+https://chatgpt.com/share/67148cd4-3978-8002-8bb0-ee482464553d  this talk can continue
+
+https://chatgpt.com/share/67148cd4-3978-8002-8bb0-ee482464553d  代码重构，从Figma开始，前端，云端，WEB（nextJS）， SwiftUI， Flutter的skeleton全部搞定，包括Unit test，CI/CD
+# 10/11/2024
+1. 蚊子顺势change
+2. 生存者法则，概率思维。
+3. 思维模式（大英博物馆搬书）
+4. 灯塔目标（四位视角， 理想）
+5. 上游因果 （改变原因， 不要灭火）
+6. 蚂蚁  （思考，复盘，计划）
+7. 场域穿透（改变自己，第一位）
+
+没有一个人可以逃脱上帝的审判
+# 595 morey permit 
+
+
+
 
 # 9/23/2024
 today fernando submitted the lot depth got aceepted by Conner, others are pending but it is took 3 long months
