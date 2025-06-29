@@ -1,5 +1,12 @@
+# 05/29/2025
+
+
+# 5/1/2025
+7 blessings in rev 
+1:4, 14:14 16:15
 # 4/3/2025
 https://acccn.org/wwwen/images/100trainingcourses.pdf  3 律
+
 
 # 3/27/2025
 温和待人， 劝。 
